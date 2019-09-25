@@ -2,7 +2,8 @@
 2 Avocados
 1 red onion
 2 Cloves Garlic
-
+50 ml Lemon Juice
+Pinch Salt
 
 #Instructions
 
